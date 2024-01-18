@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ManjunathrajuSG
 - 👀 I’m interested in coding
 - 🌱 I’m currently doing MCA 
-- 💞️ I’m looking to collaborate on Fidelity
+- 💞️ I’m looking to collaborate on Cognizant
 - 
 - 📫 How to reach me manjunathrajusg2000@gmail.com
 
